@@ -1,4 +1,4 @@
-me llamo Arkangel, tengo miedo de las mujeres, soy un friki y juego videojuegos a diario
+me llamo Gabrie Arkangel Galarza Pacheco, tengo miedo de las mujeres, soy un friki y juego videojuegos a diario
 , fan de la one coin y fan de la musica de laufey y ademas soy Guapo, poderoso, asombroso
 Muy hermoso, soy precioso, armonioso
 Un buen socio, misterioso, buena gente
